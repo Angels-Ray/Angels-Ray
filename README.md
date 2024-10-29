@@ -14,7 +14,7 @@
 ### 📫 How to reach me: 
   
   * 📓 Blog: [ATRATY](https://www.atray.cn)
-  * 📧 E-mail: Violet-ATRAY@outlook.com
+  * 📧 E-mail: Violet-ATRAY&#64;outlook&#46;com
 
 
 
